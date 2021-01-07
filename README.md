@@ -1,1 +1,0 @@
-# eugtsa.github.io
